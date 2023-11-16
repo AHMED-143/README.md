@@ -1,36 +1,30 @@
 ![stats_banner](https://user-images.githubusercontent.com/78341798/194534778-d662496c-ae00-4e8d-ae9b-b90912054e7f.gif)
 <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
 
-</h3>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-________𝐍𝐀𝐌𝐄 : 𝐅𝐀𝐑𝐇𝐀𝐍_____
-________𝐅𝐑𝐎𝐌 : 𝐁𝐀𝐍𝐆𝐋𝐀𝐃𝐄𝐒𝐇______
-________𝐋𝐎𝐕𝐄 𝐖𝐈𝐓𝐇 𝐀𝐌𝐌𝐔_______
-________𝐖𝐇𝐀𝐓'𝐒𝐀𝐏𝐏 : 𝐍𝐀𝐈______
-________𝐃𝐑𝐄𝐀𝐌 : 𝐏𝐑𝐎𝐆𝐑𝐀𝐌𝐌𝐄𝐑______
-________𝐓𝐄𝐀𝐌 : 𝐁𝐋𝐀𝐙𝐄-𝐗𝐃________
+𝐍𝐀𝐌𝐄 : 𝐅𝐀𝐑𝐇𝐀𝐍
+𝐅𝐑𝐎𝐌 : 𝐁𝐀𝐍𝐆𝐋𝐀𝐃𝐄𝐒𝐇
+𝐋𝐎𝐕𝐄 𝐖𝐈𝐓𝐇 𝐀𝐌𝐌𝐔
+𝐖𝐇𝐀𝐓'𝐒𝐀𝐏𝐏 : 𝐍𝐀𝐈
+𝐃𝐑𝐄𝐀𝐌 : 𝐏𝐑𝐎𝐆𝐑𝐀𝐌𝐌𝐄𝐑
+𝐓𝐄𝐀𝐌 : 𝐁𝐋𝐀𝐙𝐄-𝐗𝐃
 <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
 
-</h3>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-(__𝐅𝐀𝐑𝐇𝐀𝐍__)
-(__𝐅𝐀𝐑𝐇𝐀𝐍__)
 <img align="right" alt="Coding" width="400" src="https://raw.githubusercontent.com/devSouvik/devSouvik/master/gif3.gif">
-(__𝐅𝐀𝐑𝐇𝐀𝐍__)
+🦋_𝐅𝐀𝐑𝐇𝐀𝐍_🦋
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/rePDfDWO3XoAAAAd/hacking.gif">
-(__𝐅𝐀𝐑𝐇𝐀𝐍__)
+🦋_𝐅𝐀𝐑𝐇𝐀𝐍_🦋
 <h1 align="center">Hi 👋, I'm 𝐅𝐀𝐑𝐇𝐀𝐍</h1>
 <h3 align="center">A Little Corder 𝐅𝐑𝐎𝐌 : 𝐁𝐀𝐍𝐆𝐋𝐀𝐃𝐄𝐒𝐇</h3>
-(__𝐅𝐀𝐑𝐇𝐀𝐍__)
+🦋_𝐅𝐀𝐑𝐇𝐀𝐍_🦋
 <img align="right" alt="coding" width="400" src="https://user-images.githubusercontent.com/55389276/140866485-8fb1c876-9a8f-4d6a-98dc-08c4981eaf70.gif">
-(__𝐅𝐀𝐑𝐇𝐀𝐍__)
+🦋_𝐅𝐀𝐑𝐇𝐀𝐍_🦋
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=𝐅𝐀𝐑𝐇𝐀𝐍-pmishra&label=Profile%20views&color=0e75b6&style=flat" alt="𝐅𝐀𝐑𝐇𝐀𝐍-pmishra" /> </p>
 
 - 👨‍💻 All of my 𝐎𝐔𝐑 𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐆𝐑𝐎𝐔𝐏 are available at [https://m.facebook.com/groups/224531970647969/simplified_learner](https://m.facebook.com/groups/224531970647969)
-(__𝐅𝐀𝐑𝐇𝐀𝐍__)
-- ⚡ Fun fact 𝐈'𝐌 𝐅𝐔𝐍𝐍𝐘 😅
+🦋_𝐅𝐀𝐑𝐇𝐀𝐍_🦋
+- 🖤 Fun fact 𝐈'𝐌 𝐅𝐔𝐍𝐍𝐘 😅
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
@@ -45,11 +39,11 @@ ________𝐓𝐄𝐀𝐌 : 𝐁𝐋𝐀𝐙𝐄-𝐗𝐃________
 <h3 align="left">Support:</h3>
 <p><a href="https://www.buymeacoffee.com/simplified"> <img align="left" src="https://cdn.buymeacoffee.com/buttons/v2/default-yellow.png" height="50" width="210" alt="simplified learner" /></a></p><br><br>
 
-<p><img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=𝐄𝐌𝐑𝐀𝐍-pmishra&show_icons=true&locale=en&layout=compact" alt="𝐄𝐌𝐑𝐀𝐍-pmishra" /></p>
+<p><img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=𝐅𝐀𝐑𝐇𝐀𝐍-pmishra&show_icons=true&locale=en&layout=compact" alt="𝐄𝐌𝐑𝐀𝐍-pmishra" /></p>
 
-<p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=𝐄𝐌𝐑𝐀𝐍-pmishra&show_icons=true&locale=en" alt="𝐄𝐌𝐑𝐀𝐍-pmishra" /></p>
+<p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=𝐅𝐀𝐑𝐇𝐀𝐍-pmishra&show_icons=true&locale=en" alt="𝐄𝐌𝐑𝐀𝐍-pmishra" /></p>
 
-<p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=𝐄𝐌𝐑𝐀𝐍-pmishra&" alt="𝐄𝐌𝐑𝐀𝐍-pmishra" /></p>
+<p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=𝐄𝐌𝐑𝐀𝐍-pmishra&" alt="𝐅𝐀𝐑𝐇𝐀𝐍-pmishra" /></p>
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
@@ -88,84 +82,3 @@ ________𝐓𝐄𝐀𝐌 : 𝐁𝐋𝐀𝐙𝐄-𝐗𝐃________
 <!-- End Footer -->
 <img src="https://img.shields.io/badge/JavaScript-282C34?logo=javascript&logoColor=F7DF1E" alt="JavaScript logo" title="JavaScript" height="25" />
 <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-
-</h3>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-<img src="https://img.shields.io/badge/Typescript-282C34?logo=typescript&logoColor=61DAFB" alt="ts" title="Typescript" height="25" />
-<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-
-</h3>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)_
-<img src="https://img.shields.io/badge/Node.js-282C34?logo=node.js&logoColor=339933" alt="Node.js logo" title="Node.js" height="25" />
-<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-
-</h3>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-<img src="https://img.shields.io/badge/Express-282C34?logo=express&logoColor=FFFFFF" alt="Express.js logo" title="Express.js" height="25" />
-<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-
-</h3>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-<img src="https://img.shields.io/badge/Nest%20JS-282C34?logo=nestjs&logoColor=61DAFB" alt="nest logo" title="Nest js" height="25" />
-<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-
-</h3>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-<img src="https://img.shields.io/badge/MongoDB-282C34?logo=mongodb&logoColor=47A248" alt="MongoDB logo" title="MongoDB" height="25" />
-
-## ⚡Core Skills:
-<img src="https://img.shields.io/badge/React-282C34?logo=react&logoColor=61DAFB" alt="React logo" title="React" height="25" />
-<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-
-</h3>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸??'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-<img src="https://img.shields.io/badge/Python-282C34?logo=python" alt="Python logo" title="Python" height="25" />
-<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-
-</h3>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-<img src="https://img.shields.io/badge/Flask-282C34?logo=flask" alt="Flask logo" title="Flask" height="25" />
-<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-
-</h3>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-<img src="https://img.shields.io/badge/git-282C34?logo=git&logoColor=F05032" alt="git logo" title="Git" height="25" />
-<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-
-</h3>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-<img src="https://img.shields.io/badge/Firebase-282C34?logo=firebase&logoColor=FFCA28" alt="Firebase logo" title="Firebase" height="25" />
-<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-
-</h3>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-<img src="https://img.shields.io/badge/MySQL-282C34?logo=mysql" alt="SQL logo" title="MySQL" height="25" />
-<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-
-</h3>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-<img src="https://img.shields.io/badge/Flutter-282C34?logo=mongodb&logoColor=47A248" alt="Flutter" title="Flutter" height="25" />
-<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-
-</h3>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)_
-<img src="https://img.shields.io/badge/Material%20UI-282C34?logo=mui&logoColor=1F51FF" alt="Material ui" title="Material ui" height="25" />
-<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-
-</h3>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+BLZ-FARHAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+BLZ-FARHAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-<!-- Statistics -->
-
