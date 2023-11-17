@@ -42,7 +42,7 @@ I’m👀 interested in programming...<br>I’m🐍 currently learning python co
 [![](https://visitcount.itsvg.in/api?id=MdFarhan&icon=5&color=2)](https://visitcount.itsvg.in)
 
   ## ❤️ You contact with me on facebook
-  [![chat with me](https://img.shields.io/badge/Chat%20With%20a%20Ne-ffdd00?style=for-the-badge&logo=Chat-With-Me-Messenger&logoColor=black)](https://facebook.com/CH4P.M4STERM19ND) [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://www.facebook.com/CH4P.M4STERM19ND)
+  [![chat with me](https://img.shields.io/badge/Chat%20With%20A%20Me-ffdd00?style=for-the-badge&logo=Chat-With-Me-Messenger&logoColor=black)](https://facebook.com/CH4P.M4STERM19ND) [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://www.facebook.com/CH4P.M4STERM19ND)
 
-  
-<!-- Proudly created By👉👉 Md Farhan Go (  [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/ewrhridoy00)  ) -->
+##😁😁
+<!-- Proudly created By👉👉 Md Farhan.([![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.CH4P.M4STERM19ND)  ) -->
