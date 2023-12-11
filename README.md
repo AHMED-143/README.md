@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23FF0000&lines=WELCOME+TO+MY+GITHUB+IAM+FARHAN+🩵🩵)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23FF0000&lines=WELCOME+TO+MY+GITHUB+IAM+FARHAN+🩵)](https://git.io/typing-svg)
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23AF00FF&lines=Student+of+9th,+10th+Class+ðŸŒ»ðŸ˜™)](https://git.io/typing-svg)
 
@@ -25,8 +25,8 @@
 </p>
 <p align="center">
 <a href="https://github.com/Blaze0987"><img width="400" height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=Blaze0987&repo=FILE&theme=chartreuse-dark"></a>
-<a href="https://github.com/Blaze0987/FILE"><img width="400" height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=Blaze0987&repo=RANDOM&theme=chartreuse-dark"></a>
+<a href="https://github.com/Blaze0987/FILE"><img width="400" height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=Blaze0987&repo=FARHAN&theme=chartreuse-dark"></a>
 <a href="https://github.com/Blaze0987/Random"><img width="400" 
-height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=Blaze0987&repo=FARHAN&theme=chartreuse-dark"></a>
+height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=Blaze0987&repo=RANDOM&theme=chartreuse-dark"></a>
 <a 
 <a 
