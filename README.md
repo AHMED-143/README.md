@@ -24,7 +24,7 @@
   <img width="400" height="120" src="https://github-readme-stats.vercel.app/api/top-langs/?username=BLAZE-143&layout=compact&theme=chartreuse-dark">
 </p>
 <p align="center">
-<a href="https://github.com/BLAZE-143/FARHAN-GREEN"><img width="400" height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=BLAZE-143&repo=FARHAN-GREEN&theme=chartreuse-dark"></a>
+<a href="https://github.com/BLAZE-143/COMPILE"><img width="400" height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=BLAZE-143&repo=COMPILE&theme=chartreuse-dark"></a>
 <a href="https://github.com/BLAZE-143/HTTP-CANARY"><img width="400" height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=BLAZE-143&repo=HTTP-CANARY&theme=chartreuse-dark"></a>
 <a href="https://github.com/BLAZE-143/PERSONAL"><img width="400" 
 height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=BLAZE-143&repo=RESERVE&theme=chartreuse-dark"></a>
