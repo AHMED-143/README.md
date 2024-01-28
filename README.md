@@ -1,6 +1,6 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23FF0000&lines=WELCOME+TO+MY+GITHUB+IAM+FARHAN+🩵)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23FF0000&lines=WELCOME+TO+MY+GITHUB+IAM+FARHAN+ðŸ©µ)](https://git.io/typing-svg)
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23AF00FF&lines=Student+of+9th,+10th+Class+ðŸŒ»ðŸ˜™)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23AF00FF&lines=Student+of+9th,+10th+Class+Ã°Å¸Å’Â»Ã°Å¸Ëœâ„¢)](https://git.io/typing-svg)
 
 
 ![YounisJohn](https://komarev.com/ghpvc/?username=BLAZE-143&color=blue)
@@ -24,8 +24,8 @@
   <img width="400" height="120" src="https://github-readme-stats.vercel.app/api/top-langs/?username=BLAZE-143&layout=compact&theme=chartreuse-dark">
 </p>
 <p align="center">
-<a href="https://github.com/BLAZE-143/FARHAN"><img width="400" height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=BLAZE-143&repo=FARHAN&theme=chartreuse-dark"></a>
-<a href="https://github.com/BLAZE-143/FILE"><img width="400" height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=BLAZE-143&repo=FILE&theme=chartreuse-dark"></a>
-<a href="https://github.com/BLAZE-143/Random"><img width="400" 
-height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=BLAZE-143&repo=RANDOM&theme=chartreuse-dark"></a>
+<a href="https://github.com/BLAZE-143/FARHAN-GREEN"><img width="400" height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=BLAZE-143&repo=FARHAN-GREEN&theme=chartreuse-dark"></a>
+<a href="https://github.com/BLAZE-143/Http-Canary"><img width="400" height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=BLAZE-143&repo=Http-Canary&theme=chartreuse-dark"></a>
+<a href="https://github.com/BLAZE-143/PERSONAL"><img width="400" 
+height="140" src="https://github-readme-stats.vercel.app/api/pin/?username=BLAZE-143&repo=RESERVE&theme=chartreuse-dark"></a>
 <a
